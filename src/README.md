@@ -16,5 +16,4 @@ By exploring these themes, "The Power of Self-Awareness" offers a comprehensive 
 
 So let's dive in together and discover how self-awareness can help us achieve our professional goals.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
