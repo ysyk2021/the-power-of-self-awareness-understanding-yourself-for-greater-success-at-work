@@ -1,5 +1,3 @@
-Chapter 5: Cultivating a Growth Mindset
-=======================================
 
 Cultivating a growth mindset is critical for achieving greater success in the workplace. In this chapter, we will explore how to develop strategies for cultivating a growth mindset, embrace challenges and learn from mistakes, and foster a culture of continuous improvement.
 

@@ -1,5 +1,3 @@
-Chapter 4: Identifying Strengths and Weaknesses
-===============================================
 
 Identifying strengths and weaknesses is critical for achieving greater success in the workplace. In this chapter, we will explore how to develop strategies for identifying individual strengths and weaknesses, evaluate personal performance and skillsets, and develop techniques for leveraging strengths and improving weaknesses.
 

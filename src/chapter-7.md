@@ -1,5 +1,3 @@
-Chapter 7: Incorporating Self-awareness into Decision-making
-============================================================
 
 Incorporating self-awareness into decision-making is essential for success at work. It involves understanding your own strengths, weaknesses, values, and goals, and using this knowledge to make informed and strategic decisions.
 

@@ -1,5 +1,3 @@
-Making Informed and Strategic Decisions Based on Personal Values and Goals
-===================================================================================
 
 In this chapter, we will explore the significance of making informed and strategic decisions based on personal values and goals for achieving greater success at work. We will discuss the importance of aligning decisions with personal values and goals and provide practical strategies to help individuals make decisions that are well-informed, intentional, and in line with their aspirations.
 
